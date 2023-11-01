@@ -4,8 +4,8 @@
 
 Juan Esteban Diaz Castro - 202121646
 
-Juan Pablo Goyes - 
+Juan Pablo Goyes - 202220827
 
-Fabio Andres Silva - 
+Fabio Andrés Silva Galvis - 202226435 
 
-Andres Méndez - 
+Andrés Felipe Méndez Martínez - 202214565 
